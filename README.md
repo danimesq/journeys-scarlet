@@ -1,0 +1,4 @@
+# Daniella's PokéJourney - Paldea/Scarlet
+
+<img src="2022113023214900-1A552196CBAEC7F073BF13D42EA6C787_edited.jpg">
+<img src="2022113023212200-1A552196CBAEC7F073BF13D42EA6C787_edited.jpg">
